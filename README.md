@@ -6,7 +6,7 @@
 
 <p align="left"> <a href="https://twitter.com/71211811419h" target="blank"><img src="https://img.shields.io/twitter/follow/71211811419h?logo=twitter&style=for-the-badge" alt="71211811419h" /></a> </p>
 
-- 📫 How to reach me **gauranshkumar26@gmail.com**
+- 📫 How to reach me **gauranshkumar26@gmail.com** **https://www.linkedin.com/in/gauransh-kumar-022912240**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
